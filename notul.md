@@ -1,0 +1,1 @@
+foto semua belum kecuali profile
